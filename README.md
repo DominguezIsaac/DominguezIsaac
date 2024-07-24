@@ -1,3 +1,7 @@
+www.linkedin.com/in/isaac-domínguez-ruiz-2826b731a
+
+
+
 Hi👋
 I’m @DominguezIsaac, a physics student at Universitat Autònoma de Barcelona.
 
