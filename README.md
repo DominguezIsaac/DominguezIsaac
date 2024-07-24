@@ -1,4 +1,4 @@
-www.linkedin.com/in/isaac-domínguez-ruiz-2826b731a
+
 
 
 
